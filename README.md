@@ -260,8 +260,7 @@ Aspiring Data Analyst | Power BI Developer | SAP FICO Enthusiast
 
 ### Connect With Me
 
-- LinkedIn: [Your LinkedIn Profile]
-- GitHub: [Your GitHub Profile]
+- LinkedIn: [www.linkedin.com/in/vishalawasthi0804]
 
 ---
 
